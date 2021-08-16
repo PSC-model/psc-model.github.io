@@ -2,7 +2,7 @@
 
 De PSC (Psycho Sociaal Centrum) nachtkliniek drijgt te sluiten terwijl het net een voorbeeldmodel is als zorginstelling.
 
-Bekijk zeker eens onze gallerij met bijdragen en foto's van(uit) het PSC: [Klik hier om naar de gallerij te gaan.](/gallerij)
+Bekijk zeker eens onze gallerij met bijdragen en foto's van(uit) het PSC: [Klik hier om naar de gallerij te gaan.](/nl/gallerij)
 
 ## Links
 
