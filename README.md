@@ -7,8 +7,8 @@ Bekijk zeker eens onze gallerij met bijdragen en foto's van(uit) het PSC: [Klik 
 ## Links
 
 - [Officiele website van de nachtgroep van het PSC:] [https://alexianentienen.be/department/team-psychosociaal-en-emotioneel-herstel/avond-en-nachtbehandeling](https://alexianentienen.be/department/team-psychosociaal-en-emotioneel-herstel/avond-en-nachtbehandeling)
-- Facebook groep: [https://www.facebook.com/PSCmoetblijven](https://www.facebook.com/PSCmoetblijven)
-
+- Like de Facebook pagina: [https://www.facebook.com/PSCmoetblijven](https://www.facebook.com/PSCmoetblijven)
+- Kom gezellig in onze Facebook groep: [www.facebook.com/groups/pscmodel/](www.facebook.com/groups/pscmodel/) (maar out a.u.b. geen andere mensen zonder hun expliciete toestemming).
 
 ### Meewerken?
 
