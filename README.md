@@ -6,8 +6,8 @@ Bekijk zeker eens onze gallerij met bijdragen en foto's van(uit) het PSC: [Klik 
 
 ## Links
 
-- Officiele website van de nachtgroep van het PSC: https://alexianentienen.be/department/team-psychosociaal-en-emotioneel-herstel/avond-en-nachtbehandeling
-- Facebook groep: https://www.facebook.com/PSCmoetblijven
+- [Officiele website van de nachtgroep van het PSC:] [https://alexianentienen.be/department/team-psychosociaal-en-emotioneel-herstel/avond-en-nachtbehandeling](https://alexianentienen.be/department/team-psychosociaal-en-emotioneel-herstel/avond-en-nachtbehandeling)
+- Facebook groep: [https://www.facebook.com/PSCmoetblijven](https://www.facebook.com/PSCmoetblijven)
 
 
 ### Meewerken?
@@ -20,7 +20,11 @@ Als je in het PSC bent/was is voor jezelf zorgen OOK al meewerken aan het uitdra
 
 #### Delen
 
-Deel deze pagina, of de hashtage #PSCmodel, like de facebook groep (zie hierboven), ...
+Deel deze pagina, of de hashtag #PSCmodel, like de facebook groep (zie hierboven), ...
+
+#### Verbinden
+
+De PSC-gemeenschap is nauw verbonden in het echte leven. Wil je mee verbinden ook digitaal? Dat kan!
 
 #### Vertel het door
 
@@ -35,6 +39,10 @@ Ken je het PSC (dag òf nachtgroep)? Weet je wat het waard is? Laat het mij wete
 #### Vertaal
 
 Kan je goed Frans/Engels/Duits/Arabisch/braille/... mensen van alle achtergronden kunnen er terecht dus, spread the word, ook in een andere taal als je kan/wilt.
+
+#### Foutje gezien? 
+
+Laat zeker de foutjes die je ziet aan me weten. Die zullen er zeker zijn zoals alles is ook dit projectje imperfect. Contactgegevens vind je hieronder.
 
 ### Contact
 
